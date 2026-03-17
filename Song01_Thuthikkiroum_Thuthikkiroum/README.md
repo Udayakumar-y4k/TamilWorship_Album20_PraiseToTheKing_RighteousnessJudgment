@@ -2,7 +2,7 @@
 
 Psalm 72 – Prayer for the king (Messiah) to judge righteously, defend the poor, bring peace, reign to earth’s ends, receive tribute. God alone exalts and humbles, sets foundations, cuts wicked horns, lifts righteous. Fulfilled in Jesus (Luke 1:32–33; Rev 19:16).
 
-God alone judges righteously, exalting one and humbling another (v.7). He warns the proud, cuts off wicked horns (v.4–5,10), sets appointed time for justice (v.2). Earth’s pillars shake under His hand (v.3). Righteous praise Him as near and wonderful (v.1,9). Fulfilled in Christ, ultimate Judge (John 5:22; Rev 19:11–16).
+Psalm 75 - God alone judges righteously, exalting one and humbling another (v.7). He warns the proud, cuts off wicked horns (v.4–5,10), sets appointed time for justice (v.2). Earth’s pillars shake under His hand (v.3). Righteous praise Him as near and wonderful (v.1,9). Fulfilled in Christ, ultimate Judge (John 5:22; Rev 19:11–16).
 Amen.
 
 Closing Prayer
