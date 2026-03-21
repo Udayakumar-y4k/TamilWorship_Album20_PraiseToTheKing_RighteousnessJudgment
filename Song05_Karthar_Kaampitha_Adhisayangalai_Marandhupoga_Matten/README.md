@@ -1,6 +1,7 @@
 # I Will Not Forget Thy Wonders - கர்த்தர் காண்பித்த அதிசயங்களை மறந்துபோக மாட்டேன்
 
 Psalm 78 – Not forgetting God's wonders, telling fathers' stories to next generations, so they hope in God and keep His commands. Echoes Deuteronomy 6:6–9 (teach diligently).
+Psalm 105 – Call to praise and remember God's mighty acts (covenant with Abraham, Exodus miracles, provision in wilderness). Keep His deeds in heart forever.
 Closing Prayer
 Lord Jesus Christ, eternal Wonder-Worker,
 thank You for mighty acts never to be forgotten.
